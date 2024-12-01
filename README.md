@@ -1,4 +1,4 @@
-# 👋 Hello, I'm Khemanth Vijay  
+# 👋 Hello, I'm Hemanth Vijay Reddy
 
 🎯 **Aspiring Computer Engineer | AI Enthusiast | Web Developer | IoT Innovator**  
 
